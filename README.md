@@ -9,5 +9,5 @@ You accept and agree that Agri Sites is not responsible for the content of all s
 You accept and agree that Agri Sites shall not be responsible for any loss or harm that you might incur as a result of the availability of such external sites or resources or as a result of any dependence on the completeness, accuracy or presence of any advertising, goods or other materials on or accessible from such websites or resources by you.
 
 # FEEDBACK AND SUGGESTIONS
-Feedback and suggestions are an integral part to make an app better and safe. Suggestions are welcomed with open heart. Feedback and suggestions can be send to insightagri10@gmail.com 
+Feedback and suggestions are an integral part to make an app better and safe. Suggestions are welcomed with open heart. Feedback and suggestions can be sent to insightagri10@gmail.com 
 Your mailing address will not be shared with anybody and used in anyway.
